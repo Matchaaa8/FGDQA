@@ -1,2 +1,0 @@
-# FGDQA
-Forum Grup Discuss
